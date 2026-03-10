@@ -1,1 +1,0 @@
-# Pratical-5
